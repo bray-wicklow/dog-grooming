@@ -1,6 +1,6 @@
-# dog-grooming
 
-Dog Care
+
+Dog Care and Grooming
 ====================
 
 App on dog-care and how to find local groomer hopefully coming here soon. In meantime, please find some useful information on Dog Grooming and link to video showing dog care practitioners is Bray County Wicklow.
