@@ -9,7 +9,7 @@ App on dog-care and how to find local groomer hopefully coming here soon. In mea
 Dog grooming in Bray County Wicklow - Tips to groom your Doggie 
 ====================
 
-Dog grooming is important for every dog and is an important responsibility for those of us who own dogs . Like us humans, dogs must also be kept clean to look good and feel at ease. Grooming a dog can depend on breed and hair type. Good grooming tools must be used to give your dog a smart and healthy look. This video shows the various dog grooming companies in Bray who can offer you [Dog Grooming services in Bray Wicklow] (https://www.youtube.com/watch?v=rKG3ytcs9Sc)
+Dog grooming is important for every dog and is an important responsibility for those of us who own dogs . Like us humans, dogs must also be kept clean and be healthy and feel at ease. Grooming a dog can depend on breed and hair type. Good grooming tools must be used to give your dog a smart and healthy look. This video shows the various dog grooming companies [who can offer you Dog Grooming services in Bray, County Wicklow] (https://www.youtube.com/watch?v=rKG3ytcs9Sc)
 
 Brushing hair
 =============
